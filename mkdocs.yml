@@ -1,0 +1,14 @@
+site_name: party.schieke.eu
+site_url: https://party.schieke.eu
+site_author: sebastian
+
+theme:
+  name: material
+  language: de
+  font: false
+
+markdown_extensions:
+  - attr_list
+  - pymdownx.emoji:
+      emoji_index: !!python/name:material.extensions.emoji.twemoji
+      emoji_generator: !!python/name:material.extensions.emoji.to_svg
