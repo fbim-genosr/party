@@ -1,6 +1,7 @@
 site_name: party.schieke.eu
 site_url: https://party.schieke.eu
-site_author: sebastian
+site_author: caro und sebe
+site_description: infos zur party am 12.9.
 
 theme:
   name: material
