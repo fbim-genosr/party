@@ -3,14 +3,13 @@ Liebe Alle,
 in zwei Wochen sehen wir uns in Weimar. Wir freuen uns schon riesig, mit Euch unseren 10. Hochzeitstag zu feiern!
 Für Eure Planung haben wir ein paar Infos zusammengetragen:
 
-# Bevor wir starten
-Für diejenigen, die schon früher anreisen, haben wir am Vormittag eine private einstündige Stadtführung organisiert. Wenn Ihr Lust dazu habt, meldet uns bitte bis zum 7.9. zurück, mit wie vielen Personen Ihr dabei seid.
+Für diejenigen, die schon früher anreisen, haben wir am Samstag Vormittag eine einstündige Stadtführung organisiert. Wenn Ihr Lust dazu habt, meldet uns bitte bis zum 7.9. zurück, mit wie vielen Personen Ihr dabei seid.
 **Stadtführung 10:30-11:30 Uhr, Treffpunkt: Marktplatz vor dem Rathaus**
 
 # Unsere Feier
 
 ## Ort
-Mascha, Schützengasse 2
+[Mascha, Schützengasse 2](https://osm.org/go/0MBAo6gNM?m=)
 
 ## Dresscode
 Wenn Ihr was Schickes im Schrank habt, das endlich mal wieder eine Gelegenheit sieht, da herauszukommen, dann zieht es an! Es ist der richtige Moment.
