@@ -20,11 +20,11 @@ Wir möchten ausdrücklich keine Geschenke, wirklich nicht! Unser Geschenk ist, 
 
 ## Ablauf
 - 15:00 Uhr: Kaffee, Tee und Kuchen
-- 18:30 Uhr: Abendessen (Buffet)
+- 18:30 Uhr: Eröffnung Buffet
 - Am Abend: Party mit Musik und Tanzen
 
 # Und sonst so in Weimar?
-An diesem Wochenende wird die Stadt sehr voll sein, denn es finden gleich zwei Festivals auf einmal statt. Das __Weimarer Theaterfestival__ und das __Festival Genius Loci__, ein internationales Kunst-Festival mit Lichtinstallationen und Performances in der gesamten Innenstadt.
-https://www.genius-loci-weimar.org/de/start.html
+An diesem Wochenende wird die Stadt sehr voll sein, denn es finden gleich zwei Festivals auf einmal statt. Das __Weimarer Theaterfestival__ und das [Festival Genius Loci](https://www.genius-loci-weimar.org), ein internationales Kunst-Festival mit Lichtinstallationen und Performances in der gesamten Innenstadt.
 
-Im Rahmen des Theaterfestivals gibt es für Kinder am Nachmittag auf dem Theaterplatz ein Mitmachangebot vom Kinderzirkus Tasifan, einen Sport Parcours sowie Angebote von der Weimarer Malschule – quasi direkt vor der Tür vom Mascha.
+
+Im Rahmen des Theaterfestivals gibt es für Kinder am Nachmittag auf dem Theaterplatz ein Mitmachangebot vom [Kinderzirkus Tasifan](https://tasifan.de/), einen Sport Parcours sowie Angebote von der [Weimarer Malschule](https://www.malschule-weimar.de) - quasi direkt vor der Tür vom Mascha.
