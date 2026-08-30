@@ -1,4 +1,5 @@
 # Rosenhochzeit Caro und Sebe
+![](IMG_20260830_093620863.jpg)
 Liebe Alle,
 in zwei Wochen sehen wir uns in Weimar. Wir freuen uns schon riesig, mit Euch unseren 10. Hochzeitstag zu feiern!
 Für Eure Planung haben wir ein paar Infos zusammengetragen:
