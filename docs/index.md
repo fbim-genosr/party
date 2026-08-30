@@ -9,6 +9,8 @@ Für diejenigen, die schon früher anreisen, haben wir am Samstag Vormittag eine
 # Unsere Feier
 
 ## Ort
+
+![](https://lh3.googleusercontent.com/sitesv/AG8ngQX5bsQNPLkV3huyAxKmM1QBES10XTz0Kq_SMfeP9xtIf5IoDAhXBYiDKv5br2gdindUQIY6s3kpDMwvQxVdIB3ldZlfTTAivfAOi8qY_qZDTQLG4rM55k8hNGDu6mnwJ3CUZXdUVdvZMib9q_Nl-n4jyKKDOodG7fgdCOj4OCJM2hcE0nnwZQBAhkya5_kCAViEc0VxWleHhTteiTkacv_tStr9k88bG8OF1cFu=w1280)
 [Mascha, Schützengasse 2](https://osm.org/go/0MBAo6gNM?m=)
 
 ## Dresscode
