@@ -22,7 +22,7 @@ Wir möchten ausdrücklich keine Geschenke, wirklich nicht! Unser Geschenk ist, 
 ## Ablauf
 - 15:00 Uhr: Kaffee, Tee und Kuchen
 - 18:30 Uhr: Eröffnung Buffet
-- Am Abend: Party mit Musik und Tanzen
+- Am Abend: Party mit [Musik](https://www.youtube.com/watch?v=QOp_a3dUhXs) und Tanzen
 
 # Und sonst so in Weimar?
 An diesem Wochenende wird die Stadt sehr voll sein, denn es finden gleich zwei Festivals auf einmal statt. Das __Weimarer Theaterfestival__ und das [Festival Genius Loci](https://www.genius-loci-weimar.org), ein internationales Kunst-Festival mit Lichtinstallationen und Performances in der gesamten Innenstadt.
